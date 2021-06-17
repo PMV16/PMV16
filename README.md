@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with Open Source 
 - 🤔 I’m looking for help with 
 - 💬 Ask me about soft 
-- 📫 How to reach me:instgrm( https://www.instagram.com/accounts/login) id-poor_boy_mastan_16) 
+- 📫 How to reach me:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...I m happy 
 -->
